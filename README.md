@@ -1,4 +1,4 @@
-# 👩🏻‍💻 Larissa Kich
+# 👩🏻‍💻 Kauany Lopes
 
 **`Desenvolvedora`**
 
